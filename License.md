@@ -1,0 +1,1 @@
+I have a a big doggie and his name is Ted.  He lives in Australia and keeps his new dad from being lonely.  Ted loves to take his dad to the beach to play fetch with sticks.
